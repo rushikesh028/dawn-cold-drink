@@ -1,4 +1,4 @@
-🥤 Dawn Cold Drink
+*🥤 Dawn Cold Drink*
 Refresh Your Day. Redefine Your Taste.
 A modern digital experience for a refreshing beverage brand.
 Brand Introduction
