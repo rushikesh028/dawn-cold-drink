@@ -1,14 +1,14 @@
-# 🥤 DAWN COLD DRINK
+🥤 DAWN COLD DRINK
 
-### Refresh Your Day. Redefine Your Taste.
+ Refresh Your Day. Redefine Your Taste.
 
-**A Modern Digital Experience for a Refreshing Beverage Brand**
+*A Modern Digital Experience for a Refreshing Beverage Brand*
 
 ---
 
-## 🌅 Brand Introduction
+# 🌅 Brand Introduction
 
-**Dawn Cold Drink** is a beverage brand concept built around freshness, energy, taste, and a refreshing everyday experience.
+*Dawn Cold Drink* is a beverage brand concept built around freshness, energy, taste, and a refreshing everyday experience.
 
 The Dawn website is designed to establish a distinctive digital identity for the brand while creating an engaging platform to introduce its products, communicate its vision, and connect with customers.
 
